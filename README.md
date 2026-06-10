@@ -46,7 +46,7 @@ Lately I’ve been teaching myself to build AI agents — because the next wave 
 
 If you’re building something interesting in fintech, AI, or just have a wild product idea — I’m always up for a good conversation.
 
-📬 [Connect with me on LinkedIn](#) ← *(replace # with your LinkedIn URL)*
+📬 [Connect with me on LinkedIn](https://www.linkedin.com/in/nivedita-shetty-673599a9?utm_source=share_via&utm_content=profile&utm_medium=member_ios) 
 
 -----
 
